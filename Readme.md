@@ -7,4 +7,9 @@
 ##### Archie Williams High School: https://archiewilliams.tamdistrict.org/
 ##### Western Washington University: https://www.wwu.edu/
 
+#### Research interests
+##### - Climate-driven behavioral changes
+##### - Marine ecology
+##### - Aquatic and outdoor education 
+
  
